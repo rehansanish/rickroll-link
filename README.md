@@ -1,1 +1,1 @@
-Here is a rick roll link to troll people with. There is an audio file that is hidden and a YouTube <iframe> of the rickroll which make's the rickroll unstoppable unless you close the tab or mute your audio.
+Here is a nice little rickroll link to troll people with.
